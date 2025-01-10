@@ -1,1 +1,0 @@
-# simplificatuvida.github.io
